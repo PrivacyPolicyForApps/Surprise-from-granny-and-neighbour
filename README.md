@@ -49,5 +49,5 @@ This privacy policy may be updated from time to time for any reason. We will not
 
 If you have any questions regarding privacy when using the Application, please contact us by e-mail: reanomlo780@gmail.com.
 
-
+updayte
 
